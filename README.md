@@ -12,10 +12,12 @@ Haberme cambiado a sistemas fue lo mejor que me paso, tengo la suerte de hacer l
 - Me encantan los tatuajes, tengo 3.
 - Spiderman y Batman los mejores de cada team.
 - Me encanta escuchar Pop o Rock (ColdPlay, Imagine Dragons, Queen, Cerati).
+
 Importante del mundo hoy en día creo que es tener en cuenta todos los cambios que se presentan, tomar conciencia, mejorar como personas y cambiar el futuro siempre pensando en las futuras generaciones.
 Creo que dije bastante, espero no olvidarme de algo importante jaja.
 
 Este soy yo:
+
 ![IMG_20220924_195511003 (1)](https://github.com/pdepjm/2024-tp0-presentacion-MatttiB/assets/105322158/152f03d3-fbb2-425b-8aa5-bdfad9321c42)
 
 
